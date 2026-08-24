@@ -3,3 +3,5 @@
 </p>   <p align="center">
 spam Following Wip ok i follow Awesome people
 <a href="https://husband.atabook.org/">新book</a>
+um Majority of the time i do check peoples profiles but Lmk if im on ur Dni or you dont want spam accounts following you
+Mostly followingpeople With pretty ponies or people id Like to interact :) send Me something on my ata Maybe lets all Be friends
